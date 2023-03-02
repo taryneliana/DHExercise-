@@ -1,5 +1,5 @@
 # In Class Exercise
-## Student's name: XXX 
+## Student's name: Taryn Barnett 
 
 Thursday March 2nd, 2023 
 
